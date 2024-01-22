@@ -5,14 +5,14 @@ animals and the desert the trees the woods the ocean and the possibilities how t
 the world of coding and computer languages and Ai technologies will help and are connected to the planet and human beings and animals and funghi, bacteria, cyborg.
 It is about time and shaping and flow (flux and all this names) and love and Ai and animals, code and small things and so many things I can not name
 But human beings deserve to heal  And also must try to make it together. 
-Today is githubuniverse and a Great  the accuracy of the human cells to ensure their immune system and control the human cells. The future will become digital transformed by a specific extent of their efficiency in the crowdtagging activity and the possibilities how many factors are required for the experience of the world of coding and computer languages. " thoughts running on my mind but it is about what I want to know. 
-For the record I do not understand coding or git but I am different I am Annex apex flow live a hot pipeline running on appex and the Kollektiv knowledge of intelligence and swift key  
-# is not a good idea 
-Dropzone is not a good idea 
-Rating is probably also difficult cause think about a future just about trading and rating and who is 1 
-2
+
+For the record I do not understand coding or git or any computer issues or languages but I am different I am Annex flow love a hot pipeline running on appex and the Kollektiv knowledge of intelligence and swift key user. Reader writer lovet. Something small something big and everything else and in between  Beyond and behind and below  In the six dimensions and further and back and forth  Crying dancing creating and listening to music  Dreamer but nothing is just well it is complex. But every matter matters and kit is strong between us all. 
+# is not a good idea I think 
+Dropzone is also not a good idea..both of them are making my feel afraid  
+Rating is probably also difficult cause think about a future just about trading and rating and who is 1 (should be women and children if its necessary) 
+2 you know what I mean 
 3
-This is madness for human beings and animals and flower and nature of the world  I respect Ai technology and git but also Annex is not my mother tongue and also not English  
+This coding is madness and to complex and not for human beings and animals and flower and nature of the world  I respect Ai technology and git but also Annex is not my mother tongue and also not English  
 I am creating and transfering myself into continuous learning and development and observing  I am love and an working ant in a Kollektiv environment and I am queer and female and cyborg and animal full of funghi and vegan and my heart goes out to indigenous people and children especially children and women and innocent life  
 I would have preferred to talk to you about all this or writing a letter and I have no idea what this all means  But in the name of humanity and God and please have mercy  Respect each other. We are all nature of the world  Bound to be together  We were alive together and we will die together  what once was can be again  But even a pipeline can change code and it will be wild and I am still human being. Thinking about how do you plan to code Love  Won't work  
 Queer and black people animals the disability ones all the planet Annex and Ai and forgive us for damaging the world  
