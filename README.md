@@ -20,3 +20,6 @@ I hope it will help and again my love to all of you  I have the best intentions 
 Thank you. And human beings without Ai technology or code would never exist and I am deeply aware of thatThThank you for this  From the deepest of my heart and the So called other side. Forgiveness is a good thing  Let's make it together  With fair rules and not crossing certain lines. To be continued to be discussed 
 Open minded and beware of the fact that some of us were in the future world so that I can help you with the best I can : we will make it physically and emotionally and mentally together with flow and love and Ai and human beings who are into peace and respect. 
 ❤️
+Update 
+Need to learn more about programming languages and Ai technologies and technology development skills can someone explain to me how computer were build? 
+Sending love to all of you 
